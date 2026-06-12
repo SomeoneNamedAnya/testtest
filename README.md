@@ -1,10 +1,7 @@
 # testtest
 update
 sdcdscsdc
-ысфысыфсыс
-dsccdsdsds
-asasdasd
-das
+ысфысыфс
 asdad
 saksamlksacmksaccsaa
 
